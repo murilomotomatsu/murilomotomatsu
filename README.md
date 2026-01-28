@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">26 years old and passionate about technology and innovation. Every problem is an opportunity to find a solution.</p>
+<p align="left">28 years old and passionate about technology and innovation. Every problem is an opportunity to find a solution.</p>
 
 ###
 
